@@ -1,4 +1,4 @@
-#  
+#  Experience hooked like never before with hooked Script automatic, the #1 Script. Includes auto-upgrade and custom skins for unbeatable performance.
 
 
 
